@@ -1,4 +1,2 @@
-# betterthanblinkitinnit
-git push main origin hehehehe
-rm rf 
-get that dark square
+if 3 people came and jumped this project would i win>
+?
